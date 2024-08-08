@@ -1,2 +1,0 @@
-# iyfei.github.io
-mindmap
